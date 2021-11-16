@@ -1,0 +1,1 @@
+# Reproduced-SCMA-codebook-with-J-6-K-4-and-M-16
